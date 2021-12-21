@@ -1,1 +1,0 @@
-# calculator.Akmaral.github.io
